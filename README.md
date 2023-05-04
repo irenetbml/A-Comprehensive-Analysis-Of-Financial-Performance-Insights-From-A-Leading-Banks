@@ -2,16 +2,8 @@
 
 link the demo video:
 
-https://drive.google.com/file/d/1r2fhfzwDj4-sq12UetEF0BEYalicTa5D/view?usp=drivesdk
-
-https://drive.google.com/file/d/1-DI1Acr6zzwCSFt-yHnQPNRh5wgrfc68/view?usp=drivesdk
-
-https://drive.google.com/file/d/1ADRlcBD3D9xlxzYS7QRmxdTUgLwgOSlN/view?usp=drivesdk
-
 https://drive.google.com/drive/folders/121zvnoyFTr_ETJIYgdVZRYTV35LF2tbW
 
 https://drive.google.com/file/d/1aMKkNDPidPMfeoB_Reb-Qv5TaM7HNcui/view?usp=drivesdk
-
-https://drive.google.com/file/d/1-2dM8BKK6xkqW7sEbq_-q8avMTwEBgUl/view?usp=drivesdk
 
 https://drive.google.com/file/d/1-2dM8BKK6xkqW7sEbq_-q8avMTwEBgUl/view?usp=drivesdk
